@@ -1,0 +1,1 @@
+# dekan-nebo-hrdina.webgpt.cz
